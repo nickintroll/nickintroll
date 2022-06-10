@@ -3,5 +3,5 @@ If you need a website, comfortable database or something else. Contact me and we
 
 - 👋 Hi, I’m @nickintroll
 - 👀 I’m interested in interesting work projects
-- 🌱 I’m currently learning a lot of stuff, tings that i need to cempl;ite the projects.
-- 📫 Reach me here, on mail nikcintrolL@gmail.com, telegram #nickintroll.  
+- 🌱 I’m currently learning a lot of stuff, things that i need to cemplite the projects.
+- 📫 Reach me here, on mail nikcintrolL@gmail.com or telegram #nickintroll.  
